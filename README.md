@@ -1,0 +1,1 @@
+# abbyy-fine-reader-crack
