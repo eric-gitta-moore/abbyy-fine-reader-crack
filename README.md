@@ -1,6 +1,6 @@
 # abbyy-fine-reader-crack
 
-https://github.com/james-curtis/abbyy-fine-reader-crack/releases/download/v1/AbbyyFR15-enterprise.zip
+[AbbyyFR15-enterprise.zip](https://github.com/eric-gitta-moore/abbyy-fine-reader-crack/releases/download/v1/AbbyyFR15-enterprise.zip)
 
 ## 出处
 - 简中论坛 https://forum.freemdict.com/t/topic/23171/6
